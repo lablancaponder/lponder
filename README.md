@@ -1,1 +1,1 @@
-# lponder82.github.io
+# https://lablancaponder.github.io/lponder/
